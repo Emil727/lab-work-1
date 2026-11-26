@@ -1,0 +1,1 @@
+Logica drugogo novogo fayla.
